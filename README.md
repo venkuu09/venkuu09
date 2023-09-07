@@ -1,4 +1,4 @@
-### Myself Mudam Venkatesh from Karimnagar, Telangana 👋
+### Mudam Venkatesh from Karimnagar, Telangana 👋
 
 :book: Currently pursuing **Masters** in **Northwest Missouri State University** :book:
 
