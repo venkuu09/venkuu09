@@ -1,4 +1,8 @@
-### Hi there 👋
+### Myself Mudam Venkatesh from Karimnagar, Telangana 👋
+
+:book: Currently pursuing **Masters** in **Northwest Missouri State University** :book:
+
+Have an experience of 6 years in Survey Programming of Market research domain.
 
 <!--
 **venkuu09/venkuu09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
