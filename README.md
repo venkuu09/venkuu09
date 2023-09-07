@@ -1,8 +1,10 @@
 ### Mudam Venkatesh from Karimnagar, Telangana 👋
 
-:book: Currently pursuing **Masters** in **Northwest Missouri State University** :book:
+:book: Currently pursuing **Masters** in **Northwest Missouri State University** in **ACS** major :book:
 
 Have an experience of 6 years in Survey Programming of Market research domain.
+
+Interested in playing cricket and watching movies.
 
 <!--
 **venkuu09/venkuu09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
